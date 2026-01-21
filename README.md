@@ -7,7 +7,7 @@ I'm a Tech Enthusiast passionate about building unique, meaningful projects.
 - Interested in: AI, Web Architecture, Problem Solving 
 - Building: Experimental Projects with the goal of mastering the basics  
 
-Reach me at: aryan280singh9787@gmail.com 
+Reach me at: aryan280singh9787@gmail.com  
 Thanks for stopping by!
 
 
